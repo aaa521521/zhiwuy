@@ -1,17 +1,16 @@
 
 
-# 🐾[小说抄写-全程免费-30/小时-点击进入](https://web.botgate.cn/)
+# 🐾[小说抄写-全程免费-30/小时-点击进入](http://kldem.com/web/sites/template/pcpreview?paowk=u96cr85&url=aHR0cHM6Ly9pLm96YS5tZS8/eGoyeDZsMGIuc3Zn&c9z4zwi6r)
 -
--  [备用1-点击进入](https://web.botgate.cn/)
--  [备用2-点击进入](https://web.botgate.cn/)
--  [备用3-点击进入](https://web.botgate.cn/)
+-  [备用1-点击进入][(http://qdwwxx.com/web/sites/template/pcpreview?9cr8=gh6glw5&url=aHR0cHM6Ly9pLm96YS5tZS8/eGoyeDZsMGIuc3Zn&lat4s4axfueora1ft)
+-  [备用2-点击进入]([https://web.botgate.cn/](http://dragonbrand.cn/web/sites/template/pcpreview?4wn=4sixlw04&url=aHR0cHM6Ly9pLm96YS5tZS8/eGoyeDZsMGIuc3Zn&d1577lvlvk16))
+-  [备用3-点击进入][(https://web.botgate.cn/)](http://bolaitehn.com/web/sites/template/pcpreview?px=lyx3efi&url=aHR0cHM6Ly9pLm96YS5tZS8/eGoyeDZsMGIuc3Zn&ctfujlheff6px)
 
 
 
-# 🐾[或扫描下方二维码即可  ↓  ↓  ↓  ](https://web.botgate.cn/)
 
 
-![二维码](https://github.com/user-attachments/assets/07a903df-c75a-4e2e-95ff-4151eadbf481)
+
 
 ![佣金](https://github.com/user-attachments/assets/cb62f4b0-de34-4ba5-8036-4afc6f8eb51a)
 
